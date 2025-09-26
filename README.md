@@ -1,1 +1,0 @@
-# Peta-Kerawanan-Tsunami
